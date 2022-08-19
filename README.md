@@ -1,0 +1,1 @@
+# 19-08-2022_Ultimas_Alteracoes_Speech
